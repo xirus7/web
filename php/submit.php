@@ -1,0 +1,1 @@
+We've successfully received your inquiry.
